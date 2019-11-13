@@ -1,1 +1,1 @@
-# pakjuaan-github.io
+# pakjuaan.github.io
