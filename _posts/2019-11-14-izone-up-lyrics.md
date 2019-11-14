@@ -4,7 +4,7 @@ title: "IZ*ONE - Up Lyrics"
 date: 2019-11-14
 ---
 
-*IZ*ONE - Up*
+*IZ.ONE - Up*
 
 Let's go up high to the end of the blue sky
 You and I together, forever together
