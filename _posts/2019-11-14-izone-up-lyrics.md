@@ -6,7 +6,7 @@ date: 2019-11-14
 
 **IZ.ONE - Up**
 
-<p>Let's **go** up high to the end of the blue sky</p>
+Let's **go** up high to the end of the blue sky</p>
 <p>You and I together, forever together</p>
 <p>Look around, look at the world</p>
 <p>The scenery where we were together are beautifully spread across</p>
